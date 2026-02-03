@@ -1,11 +1,11 @@
 <h1 align="center">-14 IWC</h1>
  
-![me](https://files.catbox.moe/ei0xyf.png)
+![wings](https://files.catbox.moe/0nclz9.png)
 
 <h1 align="center">ᑎO ᗪᑎI + I ᗷᒪOᑕK ᖴᖇEEᒪY</h1>
 
 <p align="center">
-  𝙺𝚘𝚛𝚋𝚒𝚗 ｏｒ Cₕₐᵣₐ
+  𝙺𝚘𝚛𝚋𝚒𝚗 ｏｒ 𝙲𝚛𝚘𝚠
 </p>
 
 <p align="center">
